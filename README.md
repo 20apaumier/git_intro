@@ -1,1 +1,2 @@
 Andrew Paumier
+paumiera@oregonstate.edu
